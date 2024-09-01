@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Japanesse
 - 💞️ I’m looking to collaborate on Videogames
 - 📫 How to reach me marnandezgara@gmail.com or luxhacker536@gmail.com
-- 😄 Pronouns: She / Polysex
+- 😄 Pronouns: She / her
 - ⚡ Fun fact: My favorite character on Hazbin Hotel is Angel Dust
 
 <!---
